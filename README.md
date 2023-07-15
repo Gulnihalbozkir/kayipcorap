@@ -1,0 +1,2 @@
+# kayipcorap
+Gezi blog sayfam
